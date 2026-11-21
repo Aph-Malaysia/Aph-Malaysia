@@ -2,6 +2,6 @@
 
 ## ✧ This is PonyTown purposes!
 
-✧ If people couldn't tell I am from Malaysia and of course I speak Malay and English.
+✧ If people couldn't tell I am from Malaysia and of course I speak Malay and English, currently learning German.
 
-<img width="720" height="712" alt="179865" src="https://github.com/user-attachments/assets/a1f4ffbe-ac5f-4218-92f9-9e8363dac128"/>
+<img width="720" height="716" alt="178320" src="https://github.com/user-attachments/assets/23427540-b1fa-4412-9e6a-b9428be8fe7e" />

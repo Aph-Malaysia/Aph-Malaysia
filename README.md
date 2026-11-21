@@ -4,4 +4,4 @@
 
 ✧ If people couldn't tell I am from Malaysia and of course I speak Malay and English.
 
-<img width="720" height="712" alt="179865" src="https://github.com/user-attachments/assets/a1f4ffbe-ac5f-4218-92f9-9e8363dac128" />
+<img width="720" height="712" alt="179865" src="https://github.com/user-attachments/assets/a1f4ffbe-ac5f-4218-92f9-9e8363dac128"/>
